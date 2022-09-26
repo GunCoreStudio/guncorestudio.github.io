@@ -1,1 +1,0 @@
-# guncorestudio.github.io
